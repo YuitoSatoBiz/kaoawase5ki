@@ -37,7 +37,7 @@
 - DBFluteチャレンジ **???**
 
 +++
-### Q&A :woman-raising-hand: 
+### Q&A :raising-hand: 
 
 +++
 ### 4/18楽しみにしてます！ :muscle:
